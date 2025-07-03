@@ -1,13 +1,14 @@
-----
+![66973045-f37d-4eb9-a8dd-0dbd0bbb4c64](https://github.com/user-attachments/assets/948ace70-4351-4978-af62-369eac0e0c12) 
 
-> ![66973045-f37d-4eb9-a8dd-0dbd0bbb4c64](https://github.com/user-attachments/assets/efc37162-c1dc-49f2-9efc-ee2c54f9ef03)   ㅤㅤ 
+> &nbsp;&nbsp;&nbsp;┆ ╰⊹&nbsp;&nbsp;&nbsp;_Spirit that acts as my guardian_
+ >&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.🌿 ݁ ˖╭ ࣪&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;_Hasten to my side_
 
->_"Spirit that acts as my guardian - Hasten to my side - Thou who is named..."_
+>_Thou who is named..._ 🌸◡🐇 ୭ ˚. ᵎᵎ
 
-# . . . Cole _⌢⌢_ 🔖 // 🎶
+## &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; " 📼&nbsp;Cole&nbsp;&nbsp;&nbsp;☰🎸&nbsp;&nbsp;. . Ი︵𐑼 
 
-##  `🎐`ㅤㅤHe/himㅤㅤ]] ㅤㅤFilipino :  ☎ 
+| ![0a07e957-8f8e-4117-9c5b-37c414b4686f](https://github.com/user-attachments/assets/ba8a57ec-48eb-42df-a2b8-87c34bcf2138) | ꒰ He/him ꒱📚 ノ**──** .💫  Filipino ˎˊ˗&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ⊱  ۫ ׅ  . .🌃&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;✶&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;₍ᐢ. .ᐢ₎&nbsp;&nbsp;&nbsp;╭ 🌻︵︵probably not gay `🥞` | 
+|------------------------|-----------------------------------------------------------------------|
 
-: psst check out the link(s) my dude/dudette ‼
-
-[.☘︎ ݁˖ strawpage ;](https://cole-was-here-.straw.page)
+[**_𝜗"Harness your hopes on just one person,"੭﹕🍥_**](https://youtu.be/DrBJhi0RNvk?si=4QZVVDm9jd_rw3w-)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[**_⸝⸝You know, because a harness was only made for one. ⌗ ๑ ., 🍀_**](https://youtu.be/DrBJhi0RNvk?si=4QZVVDm9jd_rw3w-)
